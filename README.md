@@ -7,3 +7,4 @@ This is my first assignment as a student of Altschool Africa
 ![Screenshot 2023-08-18 140514](https://github.com/Lawrence4545/Cloud-project1.md/assets/130004549/307ebb06-522d-4b68-a2cf-479c70426e06)
 ![Screenshot 2023-08-18 140840](https://github.com/Lawrence4545/Cloud-project1.md/assets/130004549/4fc434d0-eca3-4ffd-8fc0-5109b60895f9)
 ![Screenshot 2023-08-18 133804](https://github.com/Lawrence4545/Cloud-project1.md/assets/130004549/d2bbb987-dfb9-4d5f-a88e-6e6e56f4f787)
+![Screenshot 2023-08-18 131242](https://github.com/Lawrence4545/Cloud-project1.md/assets/130004549/a5994398-c514-4a11-8d5a-d2c6c36be607)
